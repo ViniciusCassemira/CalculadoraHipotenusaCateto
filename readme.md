@@ -1,0 +1,1 @@
+29-01-24 Por seu meu primeiro projeto, além de simples possue erros, fiz essa primeira versão para salvar no github, conforme eu vá modificando vou atualizando.
